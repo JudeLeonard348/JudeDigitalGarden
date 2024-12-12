@@ -1,0 +1,3 @@
+The NC department of transportation is looking to the future and hoping to implement more passenger railways in rural areas. this new plan reaches into the mountainous area of NC with putting a railway station in Asheville as well as hickory and Statesville. there is a hope to expand existing railways  to reach to Washington D.C. in the north and Atlanta in the south. there is also a push to re-instate existing lines paired with new CID lines that will reach into places that for a long time had no poor rail service like Fayetteville and Hamlet.
+
+![[Pasted image 20241202123706.png|1000]]

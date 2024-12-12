@@ -1,0 +1,6 @@
+From these notes: [[Growth]],[[Rural communities]], [[Distances]]
+
+While these two notes are not inherently about railways. If we use our knowledge about railway stations and look at the map on the links to the notes, its obvious to see a trend with higher growth withing counties with railway stations. As mentioned in  [[Rural communities]]:  Urban counties make up 38% of all population growth in NC. I believe there is an obvious correlation between these two things and other notes support this as well. The rural counties within NC make up the majority of population loss and i think this is due to a lack of opportunity but especially a lack of cheap and easy travel to opportunities. If people in rural communities had the ability to cheaply travel into local urban centers to shop or work, there would not be as much emigration from the rural areas. If we cross reference the map from these notes and the map used on the [[Distances]] map it shows that the most growth happens near these stations and the surrounding area for the most part is next in line in population growth. The counties that are the farthest from rail lines typically have the least amount of growth or even a loss of population.
+
+
+

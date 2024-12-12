@@ -1,0 +1,7 @@
+From these notes: [[Passenger Benefits]], [[Cars Suck]],[[Combos]]
+
+the best way to analyze public transit is to look at how it can benefit people that need it most and how it can be used in areas that don't usually have access to this. The best way to integrate rail services and to compliment its fallbacks is to integrate it in the way that I explained in [[Combos]]. Adding biking infrastructure to existing rural areas or areas near railways can expand their area of effectiveness and can promote health and clean travel. the goal is to turn away from private vehicle usage and embrace new ways to connect with rural locations and be able to give them affordable and new ways of travel. Through many studies it is proven that "passengers benefit greatly from railways, in the piedmont alone $7.8 million in transportation cost savings which helps people from lower income areas be able to afford transportation easier([[Passenger Benefits]]). With this in mind we should be trying to create services that reach more of this demographic. Single use private owned cars are one of the biggest factors that separate rural and urban communities. the lack of local service forces this but this is an opportunity for local transit to capitalize on a necessity in local communities. If you look at the nots on the SE passenger rail it is visible that things are going to be put in place for this reason exactly.
+
+
+
+
